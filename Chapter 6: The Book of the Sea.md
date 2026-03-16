@@ -32,7 +32,7 @@ Joseph whispered in amazement. “A coded message…”
 
 Abinaya quickly grabbed her notebook. “Let me see.” She carefully copied the faint symbols. They were again written in ancient Tamil. But this time the words were shorter. More direct. After a few moments of reading, Abinaya slowly translated them. Her voice carried both excitement and curiosity.
 
-“It says…” She paused to be certain. “…‘Seek the truth in ***Kadalkol***.’”
+“It says…” She paused to be certain. “…‘Seek the truth in Kadalkol”
 
 The room fell quiet again. Keerthi blinked. “Kadalkol?”
 
@@ -56,7 +56,7 @@ Joseph spoke softly. “No one else has seen it?”
 
 “Very few,” the priest replied. He slowly unwrapped the cloth. The title appeared in faded golden Tamil letters.
 
-> **Kadalkol**
+**Kadalkol**
 
 Abinaya whispered the translation. “The Voice of the Sea.”
 
