@@ -1,5 +1,4 @@
-Chapter 22
-The Truth of Two Hearts
+#Chapter 22: The Truth of Two Hearts
 
 The chamber remained silent after the massive stone door had opened. The words from the *Kadalkol* book continued to echo in everyone's minds. Joseph still held the ancient key in his hand while the others carefully examined the newly revealed chamber. There had to be a reason why the key had been hidden inside the wall mechanism. Nothing they had discovered so far had been accidental.
 
