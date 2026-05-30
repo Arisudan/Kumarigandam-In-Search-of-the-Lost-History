@@ -1,3 +1,6 @@
+Chapter 22
+The Truth of Two Hearts
+
 The chamber remained silent after the massive stone door had opened. The words from the *Kadalkol* book continued to echo in everyone's minds. Joseph still held the ancient key in his hand while the others carefully examined the newly revealed chamber. There had to be a reason why the key had been hidden inside the wall mechanism. Nothing they had discovered so far had been accidental.
 
 Harish slowly looked around the chamber. The walls were covered with carvings that had survived centuries beneath the earth and sea. Sharan carefully observed every symbol while Keerthi unfolded the map once again and compared it with the routes they had already traveled. Abinaya stood quietly with the *Kadalkol* book in her hands, reading through the pages once more.
