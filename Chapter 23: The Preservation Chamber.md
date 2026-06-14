@@ -139,5 +139,3 @@ The five friends stared at the map in stunned silence.
 Their journey had just revealed another secret.
 
 And somewhere within the maps they now carried, an even greater mystery was waiting to be uncovered.
-
-This paragraph-based style is much closer to what readers expect in an adventure novel and will make Chapters 24 onward feel smoother and more professional.
