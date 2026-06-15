@@ -185,5 +185,3 @@ But one thing was certain.
 The story of Athiyan and Mathi was far from over.
 
 And their greatest discovery still lay ahead.
-
-**End of Chapter 24**
