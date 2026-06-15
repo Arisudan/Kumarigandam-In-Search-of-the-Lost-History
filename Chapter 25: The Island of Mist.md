@@ -185,5 +185,3 @@ Their journey home had begun.
 But deep within the storage compartment, wrapped safely among the artifacts of a forgotten age, the orange gemstone pulsed faintly in the darkness.
 
 As though somewhere beyond the sea, an ancient secret had awakened.
-
-**End of Chapter 25**
