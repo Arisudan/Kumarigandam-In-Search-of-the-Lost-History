@@ -1,6 +1,4 @@
-# Chapter 25
-
-## The Island of Mist
+# Chapter 25: The Island of Mist
 
 The evening sun had begun its descent into the western horizon as the five friends stood on the deck of their boat. The golden light of the setting sun bathed the sea in shades of orange and crimson, while the gentle waves reflected the colors of the sky like a vast moving mirror. Behind them lay Mahamathiyapuram, the Great City of Mathi, hidden among forests and ancient ruins. Though they had spent only a short time on the island, it already felt like a place that belonged to another world.
 
